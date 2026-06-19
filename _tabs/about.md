@@ -37,5 +37,5 @@ I believe that the most powerful science shouldn't be locked behind paywalls or 
 
 If you want to chat about modeling, ancient history, or data visualization, feel free to reach out!
 
-* Connect with me on [LinkedIn](https://linkedin.com/in/[your_username])
+* Connect with me on [LinkedIn](https://linkedin.com/in/dr-sandesh-kamath-53795124)
 * Or contact directly at sandeshkamath4sk@gmail.com
